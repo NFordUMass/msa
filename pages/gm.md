@@ -18,6 +18,8 @@ Follow the updates to the event live [@msaumass](https://x.com/msaumass?s=20){:t
 
 ### Round 6 Free Agency Form to Fill Out:
 
+[Round 2 link!](https://docs.google.com/forms/d/e/1FAIpQLSdbkTSLtxFGksB3s4CKLEo6rg0J3edz316AKafm8MfXNWDDRw/viewform?usp=sf_link){:target="\_blank"}
+
 [Form link here!](https://docs.google.com/forms/d/e/1FAIpQLSdbkTSLtxFGksB3s4CKLEo6rg0J3edz316AKafm8MfXNWDDRw/viewform?usp=sf_link){:target="\_blank"}
 
 ## Welcome
