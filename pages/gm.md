@@ -11,7 +11,7 @@ permalink: /gm
 
 ## NBA Mock Trade Deadline Materials
 
-Make a copy of this spreadsheet: <br>
+Make a copy of this spreadsheet: <br> 
 [Cap Sheets](https://docs.google.com/spreadsheets/d/1mANbrzcOtjYjhtEESCd9QXkFk9JSMyC815RLL-AMmao/edit#gid=202789726) <br>
 This will be the cap sheet for you use for the entire event <br>
 Here is the Zoom link: <br> 
