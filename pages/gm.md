@@ -12,9 +12,10 @@ permalink: /gm
 ## NBA Mock Trade Deadline Materials
 
 Make a copy of this spreadsheet: <br>
-[Main Spreadsheet]([https://docs.google.com/spreadsheets/d/14kjLlJeD-GfusN7m5dBJ--7qphjKhB-mobEhzcwKR-U/edit?usp=sharing](https://docs.google.com/spreadsheets/d/1mANbrzcOtjYjhtEESCd9QXkFk9JSMyC815RLL-AMmao/edit#gid=202789726)){:target="\_blank"}! <br>
+[Cap Sheets](https://docs.google.com/spreadsheets/d/1mANbrzcOtjYjhtEESCd9QXkFk9JSMyC815RLL-AMmao/edit#gid=202789726) <br>
 This will be the cap sheet for you use for the entire event <br>
-Here is the Zoom link: <br> [Zoom Link](https://umass-amherst.zoom.us/j/98313750976) 
+Here is the Zoom link: <br> 
+[Zoom Link](https://umass-amherst.zoom.us/j/98313750976) <br>
 Follow the updates to the event live [@msaumass](https://x.com/msaumass?s=20){:target="\_blank"} on twitter! <br>
 
 ### Round 6 Free Agency Form to Fill Out:
