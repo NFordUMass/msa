@@ -12,12 +12,12 @@ permalink: /resources
 ## NBA Mock Trade Deadline Materials
 
 Make a copy of this spreadsheet: <br> 
-[Cap Sheets](https://docs.google.com/spreadsheets/d/1OsTAkILJT8U26dSMUcapeFn3tKOGSDTXmQmf90hWyKM/edit#gid=202789726) <br>
+[Cap Sheets](https://docs.google.com/spreadsheets/d/1fzi_eCDpAiEbTYB9emF5Yzl0MhrMbvpWI2oFUlk-LTQ/edit?usp=sharing) <br>
 This will be the cap sheet for you use for the entire event <br>
 Here is the Zoom link for the teams not in person: <br> 
 [Zoom Link](https://umass-amherst.zoom.us/j/98313750976) <br>
 Here is the link to the rules to the event <br>
-[Trade Deadline Rules](https://docs.google.com/document/d/1rAURLeVA06j_EG_GD1ftNE8_iA7jJm0oRBwuz7aX1Wk/edit)
+[Trade Deadline Rules]() <br>
 Follow the updates to the event live [@msaumass](https://x.com/msaumass?s=20){:target="\_blank"} on twitter! <br>
 
 ## Where to Start?
